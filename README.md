@@ -1,3 +1,4 @@
+🔔 Detail about Author 🔔
 🎉 Hello, I'm Dev Zone Developer! 🎉
 
 🚀 Join Our Journey 🚀
